@@ -1,5 +1,5 @@
 # 💫 About Me:
--  Hi, I’m @khalid732<br>-  I’m interested in programming...<br>-  I’m currently learning html, css and javascript...<br>-  I’m looking to collaborate on all types of projects...<br>-  How to reach me instagram - @khalidmusa...<br>-  Pronouns: he/him...<br>-  Fun fact: I am a boring child...
+-  Hi, I’m @khalid732<br>-  I’m interested in programming...<br>-  I’m currently learning html, css and javascript...<br>-  I’m looking to collaborate on all types of projects...<br>-  How to reach me instagram - @khalidmusa...<br>-  Pronouns: he/him...
 
 
 ## 🌐 Socials:
